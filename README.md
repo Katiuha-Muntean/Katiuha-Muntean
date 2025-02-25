@@ -1,5 +1,5 @@
 # Hi there 👋
-<img scr="https://imgur.com/fVVzEjQ.jpg" width="168" heigth="263">
+<img scr="https://imgur.com/fVVzEjQ.png" width="168" heigth="263">
 
 
 
