@@ -15,9 +15,9 @@ I really love visiting new countries and learning a lot of new things.
 ### Programming languages ​​that I know:
 <img src="https://imgur.com/nO0W2YI.png" heigth="150" width="150"> <img src="https://imgur.com/hL5IO01.png" heigth="150" width="150"> <img src="https://imgur.com/svDK9B3.png" heigth="150" width="150">
 ### Programming languages ​​that I study:
-<img src="https://imgur.com/aGUPUMI.png" heigth="150" width="150"> <img src="https://imgur.com/JPRneTU.png" heigth="150" width="150"> <img src="https://imgur.com/l2z3pOy.png" heigth="150" width="150">
+<img src="https://imgur.com/DKZRt9n.png" heigth="150" width="150"> <img src="https://imgur.com/Wn0wYxv.png" heigth="150" width="150"> <img src="https://imgur.com/4ru3iBS.png" heigth="150" width="150">
 ### Programming languages ​​that I want study:
-<img src="https://imgur.com/FAZUMvi.png" heigth="150" width="150"> <img src="https://imgur.com/XUgCev3.png" heigth="150" width="150"> <img src="https://imgur.com/vUrFfEn.png" heigth="150" width="150">
+<img src="https://imgur.com/L3quFPa.png" heigth="150" width="150"> <img src="https://imgur.com/VZiLStl.png" heigth="150" width="150"> <img src="https://imgur.com/SMwYnXv.png" heigth="150" width="150">
 
 ## 📫 How to reach me:
 <img src="https://imgur.com/2AgkQxh.png" heigth="150" width="150"> <img src="https://imgur.com/Ynsl7S9.png" heigth="150" width="150"> <img src="https://imgur.com/zlD34Z3.png" heigth="150" width="150">
